@@ -1,0 +1,1 @@
+I have worked with C, Java, Javascript, and Python, so those languages were fairly use to do. And then C++ was also relatively easy to learn even though I haven't used it a lot. But languages like Rust, Ruby, Go, Elixir, and Go definitely gave me a challenge. But I learned the functions just to do this task, I didn't go too elaborate into the language.
