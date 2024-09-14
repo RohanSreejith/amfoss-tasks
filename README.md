@@ -1,5 +1,5 @@
 ABOUT ME
-Hi, my name is Rohan Sreejith. I am a CSE AI student in S1 from Trivandrum, Kerla. I am a very big sports, car and tech guy. I am a very big car enthusiast, and follow sports like cricket and football. I have a couple of hobbies too. I play the piano and cello, and I am trying to learn to sing. I love coding because I find puzzles and stuff like that fun.
+Hi, my name is Rohan Sreejith. I am a CSE AI student in S1 from Trivandrum, Kerala. I am a very big sports, car and tech guy. I am a very big car enthusiast, and follow sports like cricket and football. I have a couple of hobbies too. I play the piano and cello, and I am trying to learn to sing. I love coding because I find puzzles and stuff like that fun.
 
 WHY SHOULD WE CHOOSE YOU?
 You should choose me because I am a hardworker and have really put my all into trying to get into am-Foss. I really love coding, am eager to keep learning new things, and finally I am a great team worker and love to work with a great team. I am willing to use all my time and push myself to become the best version of myself. 
