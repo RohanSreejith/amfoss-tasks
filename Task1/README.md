@@ -1,0 +1,1 @@
+I love working with technology, and I have always worked with laptops and stuff. So I was already fairly decent at typing. Now, I have worked on it a bit more, and I once hit a speed of 109 wpm with 95% accuracy, which is pretty good for me.
